@@ -1,0 +1,1 @@
+# takahiro-yamazaki.github.io
